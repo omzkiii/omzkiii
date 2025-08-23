@@ -1,3 +1,6 @@
 # *geomar santos*
 ![seeyou](./attachments/seeyou.png) 
-- *gruvbox never die*
+
+
+
+> [*feels*](https://youtu.be/0WHTqenlUmo) 
